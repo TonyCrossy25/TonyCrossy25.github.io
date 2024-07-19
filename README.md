@@ -1,0 +1,6 @@
+- [https://tonycrossy25.quora.com/](https://tonycrossy25.quora.com/)
+- [https://medium.com/@TonyCrossy25](https://medium.com/@TonyCrossy25)
+- [https://www.youtube.com/channel/UCGc2o3ALREfyFOnzRYfSp8A](https://www.youtube.com/channel/UCGc2o3ALREfyFOnzRYfSp8A)
+- [https://x.com/TonyCrossy25](https://x.com/TonyCrossy25)
+- [https://www.reddit.com/user/Clear_Bench_1688/](https://www.reddit.com/user/Clear_Bench_1688/)
+- [https://medium.com/@TonyCrossy25/pcsx2-emulator-2-0-release-a-game-changer-for-ps2-emulation-e7ac92a910d4](https://medium.com/@TonyCrossy25/pcsx2-emulator-2-0-release-a-game-changer-for-ps2-emulation-e7ac92a910d4)
