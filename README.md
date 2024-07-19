@@ -4,3 +4,4 @@
 - [https://x.com/TonyCrossy25](https://x.com/TonyCrossy25)
 - [https://www.reddit.com/user/Clear_Bench_1688/](https://www.reddit.com/user/Clear_Bench_1688/)
 - [https://medium.com/@TonyCrossy25/pcsx2-emulator-2-0-release-a-game-changer-for-ps2-emulation-e7ac92a910d4](https://medium.com/@TonyCrossy25/pcsx2-emulator-2-0-release-a-game-changer-for-ps2-emulation-e7ac92a910d4)
+- [Quora](https://tonycrossy25.quora.com/What-are-the-new-features-and-improvements-in-PCSX2-2-0-and-how-do-they-impact-the-emulation-experience-1?prompt_topic_bio=1)
